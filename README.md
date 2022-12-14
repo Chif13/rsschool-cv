@@ -1,1 +1,1 @@
-https://chif13.github.io/rsschool-cv/cv
+https://chif13.github.io/rsschool-cv/
